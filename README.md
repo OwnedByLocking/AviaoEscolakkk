@@ -1,2 +1,3 @@
-# AviaoEscolakkk
-Isso foi feito na escola, xddd
+Feito na escola, xd.
+
+By: LockingDdos
